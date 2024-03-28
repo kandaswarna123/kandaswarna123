@@ -9,5 +9,5 @@
 
 🚀 Outside of work, you'll often find me tinkering with new projects, contributing to open source, or exploring the latest trends in tech.
 
-📫 Let's connect and collaborate! Feel free to reach out to me at kandha815@gmail.com or check out my repositories to see what I've been up to.
+📫 Let's connect and collaborate! Feel free to reach out to me at kandha815@gmail.com ,in/Kandha Swarna or check out my repositories to see what I've been up to.
 
